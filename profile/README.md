@@ -1,3 +1,7 @@
+🔴📺LIVE NOW🔴📺  https://worldsportshd.com/race
+
+🔴📺LIVE NOW🔴📺  https://worldsportshd.com/race
+
 TV guide: How to watch the 2024 ITM Taupō Super400
 How you can watch and listen to this weekend's blockbuster New Zealand round, the ITM Taupō Super400
 Taupō Super400 shown live on Foxtel, Kayo and Sky NZ
